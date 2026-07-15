@@ -1,0 +1,1 @@
+Çeşitli dosyalar, klasörler falan işte.
